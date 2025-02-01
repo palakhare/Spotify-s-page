@@ -1,2 +1,3 @@
 # Spotify-s-page
 Music doesn't lie. If there is something to be changed in this world, then it can only happen through music!!!
+God has given us music so that above all it can lead us upwards. Music unites all qualities: it can exalt us, divert us, cheer us up, or break the hardest of hearts with the softest of its melancholy tones. But its principal task is to lead our thoughts to higher things, to elevate, even to make us tremble...
